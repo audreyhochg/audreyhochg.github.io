@@ -3,9 +3,9 @@ layout: post
 title: Hello Spain
 subtitle: Pilot Blog Post to the Abroadrey Journal
 published: true
-cover-img: /assets/img/path.jpg
+cover-img: /assets/img/helloSpainCoverPhoto.png
 thumbnail-img: /assets/img/MadridDinnerNight1.png
-share-img: /assets/img/path.jpg
+share-img: /assets/img/helloSpainCoverPhoto.png
 author: Audrey Hochglaube
 ---
 
