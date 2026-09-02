@@ -10,9 +10,9 @@ tags: [books, test]
 author: Audrey Hochglaube
 ---
 
-Helllooooo Spanish World! I touched down in Madrid, Spain exactly one week ago now, and at request, I am creating a blog to document my journeys. Anyone who knows me knows that I have plenty to say always, so hopefully, my posts wont run too dry. 
+Helllooooo Spanish World! I touched down in Madrid exactly one week ago now, and at request, I am creating a blog to document my journeys. Anyone who knows me knows that I have plenty to say always, so hopefully, my posts wont run too dry. 
 
-To be completely honest, I was quite ambivalent about studying abroad. Europe and I have not always been friends. They do not really do AC the same way we do in the US, nor ice water. They also eat at different times, which almost shifts their entire schedule, but not with an exact enough ratio to just acclimate by a few hours. It requires an entire routine makeover. They wear different clothes, and speak different languages than me. I couldn't make an exhaustive list of the lifestyle differences if I tried. That said, everyone else in the Duke junior class is studying abroad, and despite my affinity for my perfectly convenient American regimen, I ride at dawn for my girls. SO, abroad I am, and traveling with my girls I will be!
+To be completely honest, I was quite ambivalent about studying abroad. Europe and I have not always been friends. Europeans do not really do AC the same way we do in the US, nor ice water. They also eat at different times, which almost shifts their entire schedule, but not with an exact enough ratio to just acclimate by a few hours. It requires an entire routine makeover. They wear different clothes, and speak different languages than me. I couldn't make an exhaustive list of the lifestyle differences if I tried. That said, everyone else in the Duke junior class is studying abroad, and despite my affinity for my perfectly convenient American regimen, I ride at dawn for my girls. SO, abroad I am, and traveling with my girls I will be!
 
 To help navigate my new world, I have come up with a few miscellaneous goals for myself. Maybe these will be guiding stones to my exploration, likely many will be forgotten. Take this as a token of my expectations, and by the end, I can revisit to see how far I have come!
 
@@ -52,5 +52,8 @@ My agenda:
 - Find the BEST local bakery
 - Only buy unique articles of clothing from local brands
 - Exercise the use of third spaces
+- Enjoy enough wine tasting to recognize and articulate wine nuances
 
-Let this be a living document because I am sure more will come to me later! Its late here, so Abroadrey is signing off for tonight. Write you next time! Buenas Noches!!!
+I feel regularly challenged in my academic and professional life, sometimes even in my social life, but I have been fortunate to enjoy consistency in almost everything else. I am hoping that when its time to come home, I can view the lifestyle differences that I encounter with gratitude. I think this is a lucky opportunity to challenge myself to step out of my own shoes and gain a more worldly perspective, because through all the differences, we must be more similar than different? 
+
+Its late here, so Abroadrey is signing off for tonight. Write you next time! Buenas Noches!!!
