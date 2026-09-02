@@ -4,7 +4,7 @@ title: Hello Spain
 subtitle: Pilot Blog Post to the Abroadrey Journal
 published: true
 cover-img: /assets/img/path.jpg
-thumbnail-img: /assets/img/thumb.png
+thumbnail-img: /assets/img/MadridDinnerNight1.png
 share-img: /assets/img/path.jpg
 author: Audrey Hochglaube
 ---
