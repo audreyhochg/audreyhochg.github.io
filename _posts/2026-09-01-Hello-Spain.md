@@ -38,15 +38,15 @@ My agenda:
   -   Attend a fashion week
   -   solo travel for a weekend?????
   -   More to come!
-- Communicate meakly in Spanish
+- Communicate foundationally in Spanish
   -   order food / make purchases
   -   ask for directions
   -   hold small converstations
   -   get transportation
 - Learn to cook
-  -   Mediterrianian salad
+  -   Mediterranean salad
   -   chicken?
-  -   use my epicurious subscription
+  -   use my Epicurious subscription
 - Try one new food a week that is out of my comfort zone
 - Find the BEST local bakery
 - Only buy unique articles of clothing from local brands
